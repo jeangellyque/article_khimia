@@ -1,1 +1,0 @@
-# article_khimia blah blah
